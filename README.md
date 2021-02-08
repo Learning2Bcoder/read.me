@@ -1,2 +1,3 @@
-# read.me
-A repository with a name
+# readme.md
+This is the file where We put the bodies. Im learning to code kinda in the middle of things not in the begining but by no means a pro. Im just a dude trying to get by as best I can in a world where people elect people like Donald Trump. Sorry if youre a neo nazi on your way to the capitol building donning your best viking costume but you got no sense of the constitution where ideas like free source dont exist in his world so youd kinda be pinch hitting the back nine which isnt even a thing and neither is voting for a nazi. I thought the world figured that out with Adolph Hitler  
+effing people eff Me all up
